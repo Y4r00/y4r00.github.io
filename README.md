@@ -1,2 +1,2 @@
 # y4r00.github.io
-Dziennik malucha play store
+Dziennik malucha play store.
